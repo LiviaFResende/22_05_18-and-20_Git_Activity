@@ -16,6 +16,6 @@
 7. Friends of Mine in Richmond
 8. Higher Ground in Melbourne CBD
 9. Hash Specialty Coffee (Fairy floss hot chocolate! - Anthony)
-
+10. Tinker Tailor, Casey, Canberra
 
 Very good, thanks for the Contibution! I will have to visit all this nice cafés now! ☕
