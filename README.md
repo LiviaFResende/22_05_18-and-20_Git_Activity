@@ -11,4 +11,9 @@
 3. Late'
 4. The cafe of Liz (i.e. me)
 5. Blacksmith's Cafe in Belgrave - yummy croissants! (Added by Kathryn008)
+6. Top Paddock in Richmond
+7. Friends of Mine in Richmond
+8. Higher Ground in Melbourne CBD
 
+
+Very good, thanks for the Contibution! I will have to visit all this nice cafés now! ☕
