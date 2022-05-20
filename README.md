@@ -7,4 +7,6 @@
 
 1. Beat Coffee in Reservoir
 2. ONA Coffee (the best single origin in Australia)
-3. 
+3. Top Paddock in Richmond
+4. Friends of Mine in Richmond
+5. Higher Ground in Melbourne CBD
